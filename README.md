@@ -12,7 +12,7 @@
 
 - 20 years old
 
-- From Brazil
+- From Brazil, João Pessoa-PB
 
 <br/>
 
